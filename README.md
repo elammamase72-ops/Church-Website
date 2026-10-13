@@ -1,1 +1,1 @@
-# IceboLikaThixoLifihlakele.com
+# IceboLikaThixoLifihlakele.github.io
